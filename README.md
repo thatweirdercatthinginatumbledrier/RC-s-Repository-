@@ -5,7 +5,7 @@
  ‣ ㅤ Liu (aka Homicidal Liu) - If we wake up grumpy, HE'S why. One of the third<br> most responsible memebers,<br>
  ‣ ㅤ Belphie - Deals with sleep and drems. Watch out, he a lazy piece of work at<br> times, tho also a tsundeer<br>
  ‣ ㅤ Chris - Typically js woke up or tryna fall asleep, overwhelmed, non-verbal,<br> AND IF HE'S IN THE CAVE, PLEASE REFRAIN FROM PLACING LIGHTS UP OUR<br> ASSES OR SUM JEEZ!!!!<br>
- ‣ ㅤ BEN (aka BENDrowned) - I'M UR CODING GUYYYY!!!! 😎😎😎😎<br> Also! Neeo is my fave person, js next to Haku and Jeff.
+ ‣ ㅤ BEN (aka BENDrowned) - I'M UR CODING GUYYYY!!!! 😎😎😎😎<br> Also! Neeo is my fave person, js next to Haku and Jeff. <br>
 </sub>
 ‣ 
 ‣ 
